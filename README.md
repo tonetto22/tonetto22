@@ -2,8 +2,8 @@
 - 👀 I’m interested in ...love cuijingfeicuijinfei
 - 🌱 I’m currently learning ...cuijingfei
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
+- 📫 How to reach me ...gao
+- 😄 Pronouns: ...dd
 - ⚡need cuijingfei  Fun fact: ... cuijingfei
 need cuijingfei
 <!---
