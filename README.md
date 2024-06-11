@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @tonetto22
 - 👀 I’m interested in ...love cuijingfeicuijinfei
-- 🌱 I’m currently learning ...cuijingfei
+- fight I’m currently learning ...cuijingfei
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...gaomiss you ff
 - 😄 Pronouns: ...dd
