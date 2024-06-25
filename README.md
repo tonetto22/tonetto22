@@ -3,7 +3,7 @@
 - fight I’m currently learning ...cuijingfei
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...gaomiss you ff
-- 😄 Pronouns: ...dd
+- 😄 Pronouns: ...ddbawochuidaonishenbian
 - ⚡need cuijingfei  Fun fact: ... cuijingfei
 need cuijingfei
 <!---the best wishes to you
